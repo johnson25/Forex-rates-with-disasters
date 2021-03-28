@@ -15,12 +15,6 @@
 
 ![](RackMultipart20210224-4-blyloy_html_b117a5828b4b6840.gif)
 
-**Team Name: Soothsayers**
-
-- Jyotsna Yarlagadda (S5229093)
-- Mohammad Tahsiin Auzim (S5224258)
-- Kamireddy Johnson Deva Prashanth (S5230057)
-
 ![](RackMultipart20210224-4-blyloy_html_f61ce47dd1372404.gif)
 
 **TABLE OF CONTENTS:**
